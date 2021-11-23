@@ -6,7 +6,7 @@
 - 🔭 I’m currently working on my project
 - 🌱 I’m currently learning everything 
 - 📫 How to reach me: afroza8760@gmail.com
-- ⚡ Fun fact: I love coding and singing 🤣
+- ⚡ Fun fact: I love coding and singing 😁
 
 
 
